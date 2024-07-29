@@ -6,9 +6,9 @@ Xem Phim Kiếm Lai chất lượng Full HD miễn phí Online - Phim Kiếm Lai
 
 ============================
 
-🎬◉▶️<b><a href="https://hhchina.app/thong-tin-phim/kiem-lai.html" target="_blank"> Xem Phim Detective Conan Movie 27 (2024) Vietsub</a></b>
+🎬◉▶️<b><a href="https://hhchina.app/thong-tin-phim/kiem-lai.html" target="_blank"> Xem Phim Kiếm Lai (2024) Vietsub</a></b>
 
-📁◉▶️<b><a href="https://hhchina.app/thong-tin-phim/kiem-lai.html" target="_blank"> Tải Phim Detective Conan Movie 27 (2024) Full HD</a></b>
+📁◉▶️<b><a href="https://hhchina.app/thong-tin-phim/kiem-lai.html" target="_blank"> Tải Phim Kiếm Lai (2024) Full HD</a></b>
 
 ============================
 
